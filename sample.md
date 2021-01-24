@@ -31,7 +31,7 @@ Jumia Nigeria  (May 2019 – April 2020)
 * Made over 4000 successful sales within a year.
 * Sourced for fast moving products and ensured good quality control measures were taken to ensure approval.
 
-Data entry officer / Chemical analyst 
+Data entry officer / Chemical analyst  
 Federal Institute of Industrial Research, Lagos State  (May 2018 - March 2019)  
 * Ran sample analysis susing SPSS. 
 * Took inventory of all charcoal samples that where coming into the institute.
