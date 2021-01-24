@@ -1,25 +1,24 @@
 # **BLESSING AMAZUIRO CHINAEMEREM**
 
-*Address: 7 Olushola Keku street, off Odubiyi, Surulere.*
+*Address: 7 Olushola Keku street, off Odubiyi, Surulere, Lagos State.*
 
-Email: blessingama105@gmail.com		Phone number: 08160999831
+Email: amazuiro@yahoo.com		Phone number: 08160999831
 
 ### PERSONAL PROFILE
 
-I am a creative and analytical person with strong interest in technology. I have good communication skills, clear and logical mind with a practical approach to problem solving and I drive to see things through to completion working both within a team and unsupervised. I have two years of experience in sales management and marketing strategies implementation with an impressive track record. I have a high productivity record with data analytics and troubleshooting skills and I hope to further harness this skills using technology.
+I am a creative and analytical person with strong interest in technology. I have good communication skills, clear and logical mind with a practical approach to problem solving and I drive to see things through to completion working both within a team and unsupervised. I have two years of experience in sales management and marketing strategies implementation with an impressive track record. I have a high productivity record with data analytics and troubleshooting skills and I hope to further harness this skills through this program.
 
 ### EDUCATION
 
-University of Nigeria, Nsukka, Enugu State 			2013 – 2017
-B.Sc. Microbiology
+University of Nigeria, Nsukka, Enugu State 			2013 – 2017  
+B.Sc. Microbiology  
 (Second class upper division)
 
-### WORK EXPERIENCE
-
-Jumia Nigeria
+### WORK EXPERIENCE  
+Jumia Nigeria  
 Jumia Vendor 							March 2018 – March 2020
-•	Balanced all account statements and sorted out returned items. 
-•	Developed market strategies for three beauty stores. 
+* Balanced all account statements and sorted out returned items. 
+* Developed market strategies for three beauty stores. 
 •	Generated profits of over N300,000 in the first 5 months and over a million during my stay.
 •	Identified good business prospects in the health and beauty category.
 •	Made over 4000 successful sales within a year.
