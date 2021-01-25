@@ -49,7 +49,7 @@ Data science career path
 Excel for business   
 Python for data science  
 Power BI for beginners
-* LinkedIn learning 2020 
+* LinkedIn learning 2020  
 Data analyst
 
 ### SKILLS
